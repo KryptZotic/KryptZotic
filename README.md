@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KryptZotic
-- 👀 I’m interested in new projexts and tokens 
+- 👀 I’m interested in new projects and tokens 
 - 🌱 I’m currently learning what I can about crypto and how it all works
   
 
